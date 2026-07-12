@@ -1,5 +1,3 @@
-# monikashugebreasts
-
 <img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/46dada27-1aa7-4d59-ba6d-ce11d0cb5727" />
  
 $${\\color{green}i \\space could \\space never \\space harm \\space monika.}$$
