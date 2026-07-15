@@ -1,32 +1,11 @@
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312g5ndmcem6ygck7amv3iv66xkm&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312g5ndmcem6ygck7amv3iv66xkm&cover_image=false&theme=default&show_offline=true&background_color=ffb0e1&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff">
-  </a>
-</p>
-<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/46dada27-1aa7-4d59-ba6d-ce11d0cb5727" />
- 
-$${\\color{green}i \\space could \\space never \\space harm \\space monika.}$$
+$\color{#50c878}{\text{angelii}}$ $\color{#93caed}{\text{or}}$ $\color{#ff9ecf}{\text{yuri}}$
 
-```i go by Angelii or Angel , close friends get to call me as Yuri !```
-___
+$\color{#50c878}{\text{seen}}$ $\color{#ffee8c}{\text{at}}$ $\color{#93caed}{\text{bakery}}$ $\color{#af8fe9}{\text{or everywhere}}$
 
+$\color{#93caed}{\text{i put this}}$ $\color{#50c878}{\text{username as a}}$ $\color{#ff9ecf}{\text{joke. dont harrass me}}$
 
-```i love my moots: Pigster , Enzo , Marwa , Typer n Zuri !!```
-___
+$\color{#ffee8c}{\text{i block ppl who i think r}}$ $\color{#93caed}{\text{gen weird asf}}$
 
+$\color{#50c878}{\text{dni}}$ $\color{#ff9ecf}{\text{natsuri}}$ $\color{#ffee8c}{\text{shippers ok?}}$
 
-```i am MONIKAS one and only gf !! (ok yea im js nonsharing...)```
-___
-
-
-```if u EVER think im weird bcus i have this username , ill BLOCK u instantly. i put it as a JOKE ok. there r usernames that r weirder than mine !```
-___
-
-
-```MIGHT b seen @ bakery , @ docks or @ the bottom of the map on pony town !```
-___
-
-
-<img width="156" height="105" alt="Image" src="https://github.com/user-attachments/assets/43701e17-ae28-4778-a2d9-29c472fc1a7c" />  
-
-$${\\color{green}MONIKA: \\space i \\space love \\space Angelii!}$$
+$\color{#50c878}{\text{c+h is welcomed,}}$ $\color{#af8fe9}{\text{im mostly offtab}}$ $\color{#ffee8c}{\text{ok?}}$
