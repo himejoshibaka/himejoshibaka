@@ -10,3 +10,4 @@ $\color{beige}{\text{ㅤDNIㅤ 30+ㅤnatsuriㅤdoubles}}$
 
 <img width="523" height="352" alt="Image" src="https://github.com/user-attachments/assets/35196ac9-1603-420c-bb31-c56f98edffdb" />
 
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9d212ceb-8384-4039-bf75-919bff101559" />
